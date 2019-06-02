@@ -1,0 +1,3 @@
+- La parte de CC va a ser corrida todo el año porque queda perfecto en 2 clases
+- Ahora todos pueden trabajar juntos
+- Los estudiantes de profesional se van a juntar con los de mestría
